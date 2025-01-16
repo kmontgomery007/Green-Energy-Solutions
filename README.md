@@ -1,0 +1,1 @@
+Green Energy Solutions is a leader in renewable energy, driving the transition to a sustainable future. We specialize in solar, wind, and hydro projects that power homes and businesses while protecting the planet.
